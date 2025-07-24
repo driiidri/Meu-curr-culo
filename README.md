@@ -1,1 +1,1 @@
-Curriculo pessoal: formação academica; habilidades; experiência
+Currículo pessoal: formação acadêmica; habilidades; experiência.
