@@ -1,1 +1,1 @@
-# Meu-curr-culo
+Curriculo pessoal: formação academica; habilidades; experiência
